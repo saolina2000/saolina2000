@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @saopri26
+- 👋 Hi, I’m @saolina2000
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning C
 - 📫 How to reach me mandalsaolina746@gmail.com
